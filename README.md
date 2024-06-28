@@ -1,11 +1,9 @@
-## ROSNEHOOK INFO
-THIS IS A REUPLOAD, ROSNE QUITTED
+## INFO
+Rosne left
 
 ## FOR VALVE
-I DO NOT CONDONE OR SUPPORT BOT HOSTING OR TF2 CHEATS
+Lol hamguy moment
 
 ## ROSNEHOOK DOWNLOAD
-the download: https://www.mediafire.com/file/skjyomltt3asg28/rosnehook-main.zip/file
-For a In-Depth Tutorial go to https://youtu.be/1r57WkOK0tohttps://www.youtube.com/watch?v=1r57WkOK0to
-FOR SUPPORT CONTACT ME ON DISCORD
-https://discord.gg/Fn3Phmw33Y
+https://www.mediafire.com/file/skjyomltt3asg28/rosnehook-main.zip/file
+https://youtu.be/1r57WkOK0tohttps://www.youtube.com/watch?v=1r57WkOK0to
